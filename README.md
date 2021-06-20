@@ -1,4 +1,4 @@
-### Assalamu'alaikum Calon Imam🥰
+**Assalamu'alaikum Calon Imam🥰**
 
 How are you today?
 Pasti cape yaa? Semoga Allah memberi keberkahan atas lelahmu hari ini ya.
@@ -13,4 +13,4 @@ Baik² yaa di sana. Semoga diperlancar mencari rezekinya.
 Aku slalu mendo'akanmu
 I Love You
 
-> Semangat terus yaa Derys Saptq Nugraha
+> Semangat terus yaa Derys Sapta Nugraha
